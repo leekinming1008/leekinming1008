@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **kinmingleeangus@gmail.com**
 
-- 📄 Know about my experiences [My Resume](https://anguslee.netlify.app/assets/Angus_CV-cYGodnIY.pdf)
+- 📄 Know about my experiences [My Resume](https://anguslee.netlify.app/assets/Angus_CV-10Ixbgg2.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
